@@ -2,6 +2,6 @@
 
 Welcome to English Class! 
 
-Seoul Doseong Elementary School Grade 6 English
-
 Ms. Kim & Mr. Davies 
+
+Seoul Doseong Elementary School Grade 6 English
