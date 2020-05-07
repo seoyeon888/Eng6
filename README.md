@@ -1,3 +1,7 @@
 # twine6
 
-트와인에 오신걸 환영합니다~~
+Welcome to English Class! 
+
+Seoul Doseong Elementary School Grade 6 English
+
+Ms. Kim & Mr. Davies 
